@@ -1,0 +1,3 @@
+# Corso__Fritzing
+
+Scaletta:
